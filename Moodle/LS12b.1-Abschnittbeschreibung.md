@@ -1,0 +1,1 @@
+Die Firma __Change IT__ plant, Ihren Webauftritt leistungsfähiger zu gestalten. Das Vorhaben soll von einer/m Auszubildenden des Abschlussjahrganges im Zuge der __betrieblichen Projektarbeit__ für die IHK-Abschlussprüfung durchgeführt werden.
